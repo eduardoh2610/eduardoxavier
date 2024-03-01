@@ -12,3 +12,5 @@ eduardo.xavier.mendes@escola.pr.gov.br
 
 @arruda.09
 
+
+![](https://media.tenor.com/N4q3vJQeMLMAAAAM/loud-loudcoringa.gif)
